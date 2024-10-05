@@ -22,4 +22,4 @@
 
 ## Por:
 ### Ana Luiza Cunha
-### Linkedin: https://www.linkedin.com/in/ana-luiza-cunha-11534b215/
+### Linkedin: http://linkedin.com/in/ana-luiza-santos-cunha
